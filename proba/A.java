@@ -1,3 +1,3 @@
 Daaa
 
-pai da
+pai nu
